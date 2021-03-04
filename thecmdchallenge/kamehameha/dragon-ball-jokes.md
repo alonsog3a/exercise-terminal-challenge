@@ -1,4 +1,4 @@
-Where do you put Vegeta after you kill him? In the Frieza. 
+Hola que tal esto es una prueba para el ejercicio 
 
 What did Beerus say to Goku? Why don't you tell your son to "Gohan" home. 
 
